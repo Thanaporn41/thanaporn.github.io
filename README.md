@@ -1,1 +1,0 @@
-# thanaporn.github.io
